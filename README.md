@@ -1,1 +1,1 @@
- for Cafe Press deigns from Covidian days.
+Cafe Press deigns from Covidian days.
